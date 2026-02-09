@@ -1,1 +1,1 @@
-# Next-AI
+# Next-GEN-AI
